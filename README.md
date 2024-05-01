@@ -1,2 +1,3 @@
-# my-rentry-
-(⁠〃ﾟ⁠3ﾟ⁠〃⁠)
+#-RENTRYISUNDER.CONSTRUCTION.COM.-#
+
+>!https://media.discordapp.net/attachments/1178324292027564123/1235241701648502904/7ee08fad953cae55633499c56c66374c.jpg?ex=6633a7fb&is=6632567b&hm=7faab94185827edb6ba418a8dec65a530cbb93f130154fd3c9e373dc62347dc8&<!
