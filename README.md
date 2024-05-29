@@ -4,6 +4,8 @@
 
   ★she .![](https://file.garden/ZTPKSmyz9k4k9wFy/resources/117450a9.gif)them .![](https://file.garden/ZTPKSmyz9k4k9wFy/resources/117450a9.gif) pup.★
 
+![](https://files.catbox.moe/y9k04x.png)![](https://files.catbox.moe/fti1wn.png)![](https://files.catbox.moe/rhxqfw.png)![](https://files.catbox.moe/26b0xj.png)
+
 ![](https://files.catbox.moe/sl7165.png)
 
 ![](https://files.catbox.moe/eu2kpx.gif)- Dni: Wilbur fans . *Dteam Antis* .Fetishizers . *weirdos* . just basically heavily dislike on my interests.  ~~Lolicons . Proships . Necrophilia . Ped0s. *age gap* .~~
