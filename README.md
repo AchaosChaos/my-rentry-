@@ -14,4 +14,6 @@
 
 ![](https://files.catbox.moe/pct622.png)
 
-![](https://files.catbox.moe/mpveh5.gif) *Interests.~*![](https://files.catbox.moe/mpveh5.gif)
+![](https://files.catbox.moe/mpveh5.gif) *Boundries.~*![](https://files.catbox.moe/mpveh5.gif)
+
+![](https://files.catbox.moe/7kj5md.jpg),*I have adhd, aspd . c-ptsd. i might be rude to you but get used to it ., Please Dniuf if i have it in my pt user . you can call me alice. or my skin username . im really hyperfixated on such things, sometimes i might blabber random things .*,![](https://files.catbox.moe/1o1r7q.jpg)
