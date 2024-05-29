@@ -2,7 +2,7 @@
 ![](https://files.catbox.moe/sl7165.png)
 ![](https://files.catbox.moe/7kj5md.jpg)† -ALICE, LINE,-† ![](https://files.catbox.moe/1o1r7q.jpg)
 
-  ★she .![](https://file.garden/ZTPKSmyz9k4k9wFy/resources/117450a9.gif)them .![](https://file.garden/ZTPKSmyz9k4k9wFy/resources/117450a9.gif) pup.★
+  ★she .![](https://files.catbox.moe/wmjpwz.gif)them .![](https://files.catbox.moe/wmjpwz.gif) pup.★
 
 ![](https://files.catbox.moe/y9k04x.png)![](https://files.catbox.moe/fti1wn.png)![](https://files.catbox.moe/rhxqfw.png)![](https://files.catbox.moe/26b0xj.png)
 
@@ -30,6 +30,6 @@
 
 ![](https://files.catbox.moe/eu2kpx.gif) *. Extra stuff .*![](https://files.catbox.moe/eu2kpx.gif)
 
-*,I Am transfem . i use fem term, but do not use masc terms on me. im asexual pansexual demi girl . i started my transition back in 2023 . do not ask for a face rev/voice rev if were not close .*
+![](https://files.catbox.moe/wmjpwz.gif)*,I Am transfem . i use fem term, but do not use masc terms on me. im asexual pansexual demi girl . i started my transition back in 2023 . do not ask for a face rev/voice rev if were not close .*![](https://files.catbox.moe/wmjpwz.gif)
 
 ![](https://files.catbox.moe/8zk1bp.png)
