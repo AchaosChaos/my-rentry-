@@ -1,3 +1,4 @@
+
 ![](https://files.catbox.moe/nxeobp.png)
 ![](https://files.catbox.moe/sl7165.png)
 ![](https://files.catbox.moe/7kj5md.jpg)† -ALICE, LINE,-† ![](https://files.catbox.moe/1o1r7q.jpg)
@@ -31,5 +32,8 @@
 ![](https://files.catbox.moe/eu2kpx.gif) *. Extra stuff .*![](https://files.catbox.moe/eu2kpx.gif)
 
 ![](https://files.catbox.moe/wmjpwz.gif)*,I Am transfem . i use fem term, but do not use masc terms on me. im asexual pansexual demi girl . i started my transition back in 2023 . do not ask for a face rev/voice rev if were not close .*![](https://files.catbox.moe/wmjpwz.gif)
+
+![](https://64.media.tumblr.com/9912cedbee8dbd485e0548371c8b5a75/4ca2d83e96d00358-0b/s400x600/426fa721d999eb4447b07e4d0f919b41e72e6b7c.gifv)
+*- I LOVE MY BFS!! ★-*
 
 ![](https://files.catbox.moe/8zk1bp.png)
