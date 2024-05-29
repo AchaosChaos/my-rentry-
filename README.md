@@ -1,5 +1,5 @@
 † -ALICE, LINE,-†
 
-  ~she . them . pup .~
+  ★she . them . pup .★
 
-%Pink% - Dni: Wilbur fans . Dteam Antis . ~~Lolicons . Proships . Necrophilia .~~
+%Pink% - Dni: Wilbur fans . Dteam Antis . ~~Lolicons . Proships . Necrophilia .~~%%
