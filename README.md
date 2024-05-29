@@ -1,1 +1,5 @@
-![](https://media.discordapp.net/attachments/903364339464044575/1101867792619290644/8BF73082-0826-4347-A22C-6CBBD6E883E9.gif)<
+† -ALICE, LINE,-†
+
+  ~she . them . pup .~
+
+%Pink% - Dni: Wilbur fans . Dteam Antis . ~~Lolicons . Proships . Necrophilia .~~
