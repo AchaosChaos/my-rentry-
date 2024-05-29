@@ -25,3 +25,7 @@
 *CLASS OF 09, crk, skullgirls, DTTWT, ut/dr, guilty gear, SpongeBob, Markiplier, oompavile, jack stauber, will wood, tally hall, neko chan girls(?) Salad fingers, Adventure time, steven universe regretevater, tvgirl, FNF .*
 
 ![](https://files.catbox.moe/o6x4nb.gif)
+
+![](https://files.catbox.moe/eu2kpx.gif) *. Extra stuff .*![](https://files.catbox.moe/eu2kpx.gif)
+
+*,I Am transfem . i use fem term, but do not use masc terms on me. im asexual pansexual demi girl . i started my transition back in 2023 . do not ask for a face rev/voice rev if were not close .*
