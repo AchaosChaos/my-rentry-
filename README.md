@@ -16,7 +16,7 @@
 
 ![](https://files.catbox.moe/mpveh5.gif) *Boundries.~*![](https://files.catbox.moe/mpveh5.gif)
 
-![](https://files.catbox.moe/7kj5md.jpg),*I have adhd, aspd . c-ptsd. i might be rude to you but get used to it ., Please Dniuf if i have it in my pt user . you can call me alice. or my skin username . im really hyperfixated on such things, sometimes i might blabber random things .*,![](https://files.catbox.moe/1o1r7q.jpg)
+![](https://files.catbox.moe/7kj5md.jpg),*BYFI!!, i heavily kin Nicole from class of 09, Im diagnosed with ADHD, ASPD, Sociopath, Narcissistic personality disorder. i love interacting online .I cannot control my anger whatsoever. I hate sudden vents, it just makes me feel overwhelmed with pity and stress .i have c-ptsd. i might be rude to you but get used to it ., Please Dniuf if i have it in my pt user . you can call me alice. or my skin username . im really hyperfixated on such things, sometimes i might blabber random things .*,![](https://files.catbox.moe/1o1r7q.jpg)
 
 ![](https://files.catbox.moe/oh0dmz.jpeg)
 
