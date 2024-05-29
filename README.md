@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/y55bvf.png)
 ![](https://files.catbox.moe/sl7165.png)
-† -ALICE, LINE,-† ![](https://files.catbox.moe/mpveh5.gif)
+![](https://files.catbox.moe/7kj5md.jpg)† -ALICE, LINE,-† 
 
   ★she . them . pup.★
 
@@ -14,4 +14,4 @@
 
 ![](https://files.catbox.moe/pct622.png)
 
-
+![](https://files.catbox.moe/mpveh5.gif) *Interests.~*![](https://files.catbox.moe/mpveh5.gif)
