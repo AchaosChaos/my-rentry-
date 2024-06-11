@@ -36,7 +36,7 @@
 
 ![](https://blinkies.cafe/b/display/0190-hittingfloor.gif)
 
-*- I LOVE MY BFS!! ★-*
+*- ★i luv drem★-*
 
 ![](https://64.media.tumblr.com/f6bb0c8e5c2cff9bf8ae55ed3faa2801/b59f062936d97eb7-d9/s250x400/e3fbbffa67a8fe8def202b148023c657cd9de4f1.gif)
 
